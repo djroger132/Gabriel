@@ -1,6 +1,6 @@
 ## Olá! Eu sou Gabriel Kauã
 
-- 📚 Atualmente cursando Manuteção De Redes
+- 📚 Atualmente cursando Gestão de T.I
 - 📫 Contato pelo email:bielkauaa333@gmail.com
 - 😄 Pronouns:ele/dele
 
